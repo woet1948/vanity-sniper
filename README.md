@@ -1,1 +1,1 @@
-# vanity-sniper
+editleyin kullanın kafanıza göre
