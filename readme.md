@@ -1,1 +1,1 @@
-birisinin bişeyi işinize yarar
+birisinin bişeyi işinize yarar fazla priw tutmaya çalışıyo aslan kardeslerım :)
