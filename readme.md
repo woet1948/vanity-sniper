@@ -1,0 +1,1 @@
+birisinin bişeyi işinize yarar
